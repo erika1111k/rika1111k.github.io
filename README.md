@@ -1,1 +1,0 @@
-# rika1111k.github.io
